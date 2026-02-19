@@ -1,6 +1,6 @@
  Empowering India
 
-Strategic Analysis of Union Budget (FY 2021–22 to FY 2023–24) for Industry Growth & Policy Alignment*
+The Evolution Of Union Budget Allocation for Sustainable Growth 
 
  📌 Project Overview
 
